@@ -6,7 +6,6 @@
 
 # **BFYINT**
 
-FANDOMS: Girls und panzer, Keroro Gunsou, Axis Powers Hetalia, SATW TF2, Usavich, Smeshariki and more...
 * Not so active online due to my school and personal life
 
 * I'm AFK most of the time
