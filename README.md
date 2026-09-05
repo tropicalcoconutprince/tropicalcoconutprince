@@ -4,7 +4,7 @@
 
 </div>
 
-# **BFYINT**
+# **BYI**
 
 * Not so active online due to my school and personal life
 
