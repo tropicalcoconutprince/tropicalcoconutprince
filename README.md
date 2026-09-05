@@ -12,6 +12,8 @@
   
 * I mostly notice whispers. Sorry if I've ignored you!
 
+* I prefer communicating with boops and actions
+
 <div align="center">
   
 ---
