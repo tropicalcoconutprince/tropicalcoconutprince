@@ -10,7 +10,7 @@
   
 * I mostly notice whispers. Sorry if I've ignored you!
 
-* I prefer communicating with boops and actions
+* If I do something that triggers you pls tell me!
 
 <div align="center">
   
