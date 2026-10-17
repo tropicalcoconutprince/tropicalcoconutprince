@@ -7,8 +7,6 @@
 # **BYI**
 
 * Not so active online due to my school and personal life
-
-* I'm AFK most of the time
   
 * I mostly notice whispers. Sorry if I've ignored you!
 
@@ -21,10 +19,12 @@
 
 # **FANDOMS**:
 *  Girls und panzer
+* Touhou Project
 * Keroro Gunsou
 * Axis Powers Hetalia
 * SATW
 * TF2
 * Usavich
 * Smeshariki
+* 13 карт
 * More...
