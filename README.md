@@ -1,6 +1,6 @@
 <div align="center">
   
-![poop](https://github.com/tropicalcoconutprince/tropicalcoconutprince/blob/main/f21f0aa228a479c1d3ad5bc155f4546e.webp)
+![poop]([https://github.com/tropicalcoconutprince/tropicalcoconutprince/blob/main/f21f0aa228a479c1d3ad5bc155f4546e.webp](https://github.com/tropicalcoconutprince/tropicalcoconutprince/blob/main/297a08843e92474b42288e8a6698dbb7.jpg?raw=true))
 
 </div>
 
